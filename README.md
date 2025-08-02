@@ -301,3 +301,6 @@ For more in-depth details and the latest updates, visit the [smart-cache-cli pac
 Explore more challenges or contribute to this project!
 
 > 🏃 Head to your next challenge [here](https://speedrunstylus.com/challenge/vending-machine).
+#   s p e e d r u n - n f t  
+ #   s p e e d r u n - n f t  
+ 
